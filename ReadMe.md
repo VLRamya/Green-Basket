@@ -17,7 +17,8 @@ Moreover, our groundbreaking platform transcends the mere realms of waste reduct
 ![image](https://github.com/VLRamya/Green-Basket/assets/117797835/74bbae9f-a0e6-491b-b5a7-a7eca4d998b2)
 ![image](https://github.com/VLRamya/Green-Basket/assets/117797835/ae0e4550-bf67-4b49-8e6e-d2104ceaf345)
 ![image](https://github.com/VLRamya/Green-Basket/assets/117797835/d88871ce-d76e-41a2-ba09-95a1e44b5622)
-![image](https://github.com/VLRamya/Green-Basket/assets/117797835/7f0734c9-ca4d-48dc-a9ae-986c44377198)
+![image](https://github.com/VLRamya/Green-Basket/assets/117797835/9807b32f-e5e9-4567-bfd1-105a1c653de3)
+
 
 
 
